@@ -21,5 +21,5 @@
  <summary>note</summary>
  i do not associate myself with pressure anymore.
  <br>
-    not changing this profile because eyefestation will always be special to me.
+    not changing this profile because too lazy
 </details>
